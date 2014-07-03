@@ -12,10 +12,10 @@ Just pasting here the original license as found on [dafont](http://www.dafont.co
 FOR ANY USAGE
 
 - Either: Donate money to Andrew McCluskey via PayPal: nal@nalgames.com. I recommend the donation sum is what you feel the font is worth to you and what you feel is right for what you're getting from the font - I make less from doing this than you might think! 
- - Or: Purchase any item from my store: http://www.zazzle.com/nalgamesstore for rights to use this font.
- - Or: Buy me something from my Firebox wishlist: http://www.firebox.com/wish/4iC9fX6N for rights to use this font.
- - Or: Send me any game I do not already own to my Steam account: nal-games / nal@nalgames.com
- - Or: Send me a gift! I can provide my address on request. Bonus points if the gift is a physical item with my font on it somehow! Money donation also accepted this way.
+- Or: Purchase any item from my store: http://www.zazzle.com/nalgamesstore for rights to use this font.
+- Or: Buy me something from my Firebox wishlist: http://www.firebox.com/wish/4iC9fX6N for rights to use this font.
+- Or: Send me any game I do not already own to my Steam account: nal-games / nal@nalgames.com
+- Or: Send me a gift! I can provide my address on request. Bonus points if the gift is a physical item with my font on it somehow! Money donation also accepted this way.
 
 FOR NON-COMMERCIAL OR NON-PROFIT USAGE
 
